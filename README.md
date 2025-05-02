@@ -15,4 +15,4 @@ Best Quotes:
 "What really matters is curiosity, consistency, and a willingness to learn and build stuff."  
      —*ChatGPT*  
   
-Checkout: [Website](https://samuelhutauruk2.github.io) - [LinkedIn](https://linkedin.com/in/samuelhutauruk2)  
+Checkout: [Name Card](https://samuelhutauruk2.github.io) - [LinkedIn](https://linkedin.com/in/samuelhutauruk2)  
